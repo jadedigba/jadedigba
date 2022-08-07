@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jadedigba
-- 👀 I’m a product designer
+- 👀 I’m a UI/UX designer
 - 💞️ I’m looking to collaborate on various meaningful projects
 - 📫 How to reach me @adedigbajanet@gmail.com
 
