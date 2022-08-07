@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @jadedigba
-- 👀 I’m interested in designing
-- 🌱 I’m currently learning ui/ux
+- 👀 I’m a product designer
 - 💞️ I’m looking to collaborate on various meaningful projects
 - 📫 How to reach me @adedigbajanet@gmail.com
 
